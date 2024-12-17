@@ -1,1 +1,1 @@
-**Hush, man, most gladly have I escaped this thing you talk of, as if I had run away from a raging and savage beast of a master.**
+**Muchos años después, frente al pelotón de fusilamiento, el coronel Aureliano Buendía recordaría aquella tarde lejana en que su padre lo llevó a descubrir el hielo.**
