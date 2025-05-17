@@ -1,1 +1,1 @@
-**Muchos años después, frente al pelotón de fusilamiento, el coronel Aureliano Buendía recordaría aquella tarde lejana en que su padre lo llevó a descubrir el hielo.**
+"Still, Coe thought, it might have been living in the country that was making him cry. It was killing him with its silence and loneliness – making everything ordinary, too beautiful to bear."
